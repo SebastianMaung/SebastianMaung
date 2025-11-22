@@ -1,6 +1,22 @@
-...but it ain’t about how hard you hit. 
-It’s about how hard you can get hit and keep moving forward; how much you can take and keep moving forward. That’s how winning is done! 
-Now if you know what you’re worth, then go out and get what you’re worth, but you gotta be willing to take the hits, and not pointing fingers saying you ain’t where you wanna be because of him, or her, or anybody. 
-Cowards do that, and that ain’t you! You’re better than that!
+Witness this army of such mass and charge,
+Led by a delicate and tender prince,
+Whose spirit with divine ambition puffed
+Makes mouths at the invisible event,
+Exposing what is mortal and unsure
+To all that fortune, death, and danger dare,
+Even for an eggshell. Rightly to be great
+Is not to stir without great argument,
+But greatly to find quarrel in a straw
+When honor’s at the stake. How stand I, then,
+That have a father killed, a mother stained,
+Excitements of my reason and my blood,
+And let all sleep, while to my shame I see
+The imminent death of twenty thousand men
+That for a fantasy and trick of fame
+Go to their graves like beds, fight for a plot
+Whereon the numbers cannot try the cause,
+Which is not tomb enough and continent
+To hide the slain? O, from this time forth
+My thoughts be bloody or be nothing worth!
 
-Rocky Balboa (2006)
+- Hamlet
