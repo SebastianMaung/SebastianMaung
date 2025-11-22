@@ -1,13 +1,4 @@
-Witness this army of such mass and charge,
-Led by a delicate and tender prince,
-Whose spirit with divine ambition puffed
-Makes mouths at the invisible event,
-Exposing what is mortal and unsure
-To all that fortune, death, and danger dare,
-Even for an eggshell. Rightly to be great
-Is not to stir without great argument,
-But greatly to find quarrel in a straw
-When honor’s at the stake. How stand I, then,
+How stand I, then,
 That have a father killed, a mother stained,
 Excitements of my reason and my blood,
 And let all sleep, while to my shame I see
